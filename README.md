@@ -1,1 +1,1 @@
-# SE_offiel-minecraft
+# SE_officiel-minecraft
